@@ -1,4 +1,4 @@
-# Myths of Empire [Trinity]
+# Myths of Empires [Trinity]
 
 # [Link HERE](https://gitthub-soft.tiiny.site)
 
